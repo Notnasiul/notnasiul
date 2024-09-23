@@ -1,3 +1,5 @@
+LUIS ANTÓN-CANALÍS
+
 **Freelance video game designer and developer** with more than two decades of experience creating video games for education, treatment of learning disabilities, advertising and entertainment, publishing my own games on PC, web and consoles and helping students and professionals build skills in game design, programming, and prototyping.
 
 > **PROFESSIONAL EXPERIENCE**
